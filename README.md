@@ -1,4 +1,4 @@
-Just as own life, this website is a work in progress.
+Just as my own life, this website is a work in progress.
 
 In the meantime, you can visit me at one of my social outlets:
 
